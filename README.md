@@ -19,6 +19,11 @@ This is an image of the selected E. coli
 ![result](https://user-images.githubusercontent.com/102503666/167681754-c3b0ad0e-246f-458d-967a-b901164aeb61.jpg)
 
 
+
+![1652217136(1)](https://user-images.githubusercontent.com/102503666/167722825-a542e952-4e3b-4903-967f-46b2336d23af.jpg)
+
+
+
 If you have any questions, please do not hesitate to contact me on my WeChat public platform. Here is the QR code for my WeChat public platform.
 
 https://space.bilibili.com/216803355?spm_id_from=333.788.0.0
